@@ -8,4 +8,5 @@ https://www.thesprucecrafts.com/beginner-paper-quilling-tips-4134031
 ## How to articles to which you want back
 https://www.craftsy.com/paper-crafts/article/paper-quilling-tutorial/ Shapes
   
-## Ideas   
+## Ideas  
+https://makezine.com/2013/10/02/quilling-101/
